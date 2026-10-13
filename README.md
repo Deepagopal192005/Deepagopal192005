@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [Projects](https://linktr.ee/deeparajagopal)
 
-- 📫 How to reach me **deepagopal333@gmail.com**
+- 📫 How to reach me **deeparajagopal087@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
